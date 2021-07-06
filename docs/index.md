@@ -5,7 +5,8 @@ when you are go to tlauncher.com you can see this interface![photo_٢٠٢١-٠٧
 
 click on this![photo_٢٠٢١-٠٧-٠٦_١٦-٤١-٢٩](https://user-images.githubusercontent.com/86922935/124610979-ad030f00-de79-11eb-9b0c-bcb3622b8561.jpg)
 and click on this![photo_٢٠٢١-٠٧-٠٦_١٦-٥٠-٢٦](https://user-images.githubusercontent.com/86922935/124612053-ae810700-de7a-11eb-83d6-b0b7d38bcde1.jpg)
-after install it you can open it.
+after install tlauncher you can open it.
+
 click hear![photo_٢٠٢١-٠٧-٠٦_١٧-٠٣-١٩](https://user-images.githubusercontent.com/86922935/124613837-53501400-de7c-11eb-82f4-b2ca8b892848.jpg)
 click hear![photo_٢٠٢١-٠٧-٠٦_١٧-٠٣-٢١](https://user-images.githubusercontent.com/86922935/124613919-6662e400-de7c-11eb-889d-d47a01f8f281.jpg)
 click hear![photo_٢٠٢١-٠٧-٠٦_١٧-٠٣-٢٣](https://user-images.githubusercontent.com/86922935/124613988-7b3f7780-de7c-11eb-85d4-1bb646057ecc.jpg)
